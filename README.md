@@ -35,10 +35,6 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-An apologye
-made by the reuerende father
-and constante Martyr of
-Christe Iohn Hooper late Bishop of
 
 1. ¶To the Godly reader Henry
 Bull wysheth grace and peace
